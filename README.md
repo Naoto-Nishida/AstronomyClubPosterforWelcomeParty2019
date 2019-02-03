@@ -1,0 +1,2 @@
+# AstronomyClubPosterforWelcomeParty2019
+天文研新歓2019用
